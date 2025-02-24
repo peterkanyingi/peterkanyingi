@@ -4,7 +4,7 @@
 - 💞️ 𝒂𝒏𝒅 𝒍𝒂𝒕𝒆𝒓 𝒐𝒏 𝒎𝒚 𝒍𝒐𝒐𝒌𝒊𝒏𝒈 𝒇𝒐𝒓𝒘𝒂𝒓𝒅 𝒕𝒐 𝒄𝒐𝒍𝒍𝒂𝒃𝒐𝒓𝒂𝒕𝒆 𝒐𝒏 𝒔𝒐𝒇𝒕𝒘𝒂𝒓𝒆 𝒆𝒏𝒈𝒊𝒏𝒆𝒆𝒓𝒊𝒏𝒈
 - 📫 𝒊 𝒄𝒂𝒏 𝒃𝒆 𝒓𝒆𝒂𝒄𝒉𝒆𝒅 𝒕𝒉𝒓𝒐𝒖𝒈𝒉 𝒎𝒚 𝒆𝒎𝒂𝒊𝒍 𝒂𝒄𝒄𝒐𝒖𝒏𝒕 @𝒑𝒆𝒕𝒆𝒓𝒌𝒂𝒏𝒚𝒊𝒏𝒈𝒊36@𝒈𝒎𝒂𝒊𝒍.𝒄𝒐𝒎
 - 😄 Pronouns💙
-- ⚡ Fun fact:𝒅𝒊𝒅 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒕𝒉𝒂𝒕 𝒕𝒉𝒆 𝒔𝒖𝒏 𝒊𝒔 400 𝒕𝒊𝒎𝒆𝒔 𝒍𝒂𝒓𝒈𝒆𝒓 𝒕𝒉𝒂𝒏 𝒕𝒉𝒆𝒎𝒐𝒐𝒏?? 
+- ⚡ Fun fact:𝒅𝒊𝒅 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘 𝒕𝒉𝒂𝒕 𝒕𝒉𝒆 𝒔𝒖𝒏 𝒊𝒔 400 𝒕𝒊𝒎𝒆𝒔 𝒍𝒂𝒓𝒈𝒆𝒓 𝒕𝒉𝒂𝒏 𝒕𝒉𝒆 𝒎𝒐𝒐𝒏?? 
 
 <!---
 peterkanyingi/peterkanyingi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
